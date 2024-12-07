@@ -1,1 +1,8 @@
-# ezam-master
+![Screenshot 2024-12-07 082517](https://github.com/user-attachments/assets/e62f1e5c-dd81-4752-9440-f525cbaf8658)
+![Screenshot 2024-12-07 082549](https://github.com/user-attachments/assets/6f2569fb-bd86-4b6b-9df0-86cb3e288d60)
+![Screenshot 2024-12-07 082632](https://github.com/user-attachments/assets/9745cd70-9e19-42dc-b416-e57fde70f735)
+![Screenshot 2024-12-07 082658](https://github.com/user-attachments/assets/becf7a5a-66f8-420f-bdf4-d543ff35b14e)
+![Screenshot 2024-12-07 082721](https://github.com/user-attachments/assets/798efbb8-16f7-4174-9683-2c7adb28ab6e)
+![Screenshot 2024-12-07 082747](https://github.com/user-attachments/assets/8974aec0-293d-4c75-bc25-f8196328c26c)
+![Screenshot 2024-12-07 082824](https://github.com/user-attachments/assets/1d146922-9710-4fef-ab3f-883f82317c65)
+![Screenshot 2024-12-07 082851](https://github.com/user-attachments/assets/c4bdc2e1-2c4c-4b73-bc16-9ed705275f08)
